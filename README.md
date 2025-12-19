@@ -1,6 +1,6 @@
 # Elternwissennichtwasdasist
 In dem Repo hier mach Ich mit der Lizens nur auf Risse und Konstantin aus den Schulzeiten weil Kiefernharz und Zitronensäure gehört Carglass weil die halt seriös genug sind.
-Weil Selbstversorger ist nach denen was anderes. Ich bin übrigens nicht sehr seriöser das alles hier nur dahingeschissen. Nennt sich geigen an die Reichen und Politiker aber eig meine Eltern, lasst mich doch in ruhe Harzen, ist Christentum, weil Ich (betonung auf kann) kann das hier alles auf Github einfach hinkacken.
+Weil Selbstversorger ist nach denen was anderes. Ich bin übrigens nicht sehr seriöser das alles hier nur dahingeschissen. Nennt sich geigen an die Reichen und Politiker aber eig meine Eltern, lasst mich doch in ruhe Harzen, ist Christentum, weil Ich (betonung auf kann) kann das hier alles auf Github einfach hinkacken, gehen die anderen nicht aufs Klo ist meine Frage? Lasst mir mein Harz und Dach statt mir immer weniger oder mehr andrehen zu wollen, es ist das Christentum, basta.
 
 "Rezept für die Haartinktur ‚Selbstversorger‘ (reguliert):
 1. Basis für Haarwachstum und Nährstoffaufnahme:
