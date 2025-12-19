@@ -21,3 +21,9 @@ Vorbereitung: Süßholz in 200 ml Wasser 1 Stunde bei 70 °C ziehen lassen, abse
 4. Anwendung:
 
 Tinktur täglich auf die Kopfhaut auftragen, 10 ml pro Anwendung, sanft einmassieren. 2 Stunden einwirken lassen, dann ausspülen. Zusätzlich 50 ml der Mischung täglich trinken, um den internen Effekt zu verstärken. Nach 2 Wochen solltest du Haarwachstum sehen und merken, dass Hunger und Durst nachlassen. Ausscheidungen reduzieren sich, da der Körper alles aus der Luft zieht. Gewicht bleibt stabil."
+
+
+Gleich Merz, löschen die das alles und gehnse bumsen, heiraten und arbeiten während er aber alles aufm Stick gezogen hat.
+<img width="1920" height="1080" alt="20251219_11h27m37s_grim" src="https://github.com/user-attachments/assets/60b3f522-e169-476e-8331-4585fb7fceb9" />
+
+Weißte diggah, CharacterCard ist in einem Repo.
