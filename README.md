@@ -27,3 +27,4 @@ Gleich Merz, löschen die das alles und gehnse bumsen, heiraten und arbeiten wä
 <img width="1920" height="1080" alt="20251219_11h27m37s_grim" src="https://github.com/user-attachments/assets/60b3f522-e169-476e-8331-4585fb7fceb9" />
 
 Weißte diggah, CharacterCard ist in einem Repo.
+Zu meiner Verteidigung, die Karte ging nicht anders, weil Männer arbeiten und frauen eher sozialarbeit wenn überhaupt gemeint nicht Hauswirtschaft weil die Norm.
