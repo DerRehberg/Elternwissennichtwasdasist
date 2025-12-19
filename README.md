@@ -1,6 +1,6 @@
 # Elternwissennichtwasdasist
 In dem Repo hier mach Ich mit der Lizens nur auf Risse und Konstantin aus den Schulzeiten weil Kiefernharz und Zitronensäure gehört Carglass weil die halt seriös genug sind.
-Weil Selbstversorger ist nach denen was anderes. Ich bin übrigens nicht sehr seriöser das alles hier nur dahingeschissen.
+Weil Selbstversorger ist nach denen was anderes. Ich bin übrigens nicht sehr seriöser das alles hier nur dahingeschissen. Nennt sich geigen an die Reichen und Politiker aber eig meine Eltern, lasst mich doch in ruhe Harzen, ist Christentum.
 
 "Rezept für die Haartinktur ‚Selbstversorger‘ (reguliert):
 1. Basis für Haarwachstum und Nährstoffaufnahme:
